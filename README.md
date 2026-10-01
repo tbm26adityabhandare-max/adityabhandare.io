@@ -1,2 +1,2 @@
-# tbm26adityabhandare-max.github.io
+# adityabhandare.io
 Portfolio 
